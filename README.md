@@ -3,7 +3,7 @@
   
   I’m interested in T.E.M.P. (Technology, Engineering, Mathematics, Physics ! )
   
- 
+ <img src="https://giphy.com/gifs/computer-user-interface-error-KA593kO0JvXMs.gif" width="40" height="40" />
   
   I’m currently a Student
   
